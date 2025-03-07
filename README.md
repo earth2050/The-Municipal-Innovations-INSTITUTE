@@ -1,4 +1,4 @@
-# themunicipalinnovationsinstitute
+# The Municipal Innovations INSTITUTE
 
 This is a brand new leadership and innovations thinktank for INDEPENDENT thinkers who want to help trasform municipalites to become living, breathing and active centres for social innovation.
 
